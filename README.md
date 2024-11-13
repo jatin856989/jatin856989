@@ -8,7 +8,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/jatin856989](https://github.com/jatin856989)
 
-- 📝 Here's My LinkedIn catch up and Let's connect with each other to Expolre and learn more! [https://www.linkedin.com/in/paras-singh-660864218/](https://www.linkedin.com/in/jatin8569/)
+- 📝 Here's My LinkedIn catch up and Let's connect with each other to Expolre and learn more! [https://www.linkedin.com/in/jatin8569/](https://www.linkedin.com/in/jatin8569/)
 
 
 <h3 align="left">Connect with me:</h3>
